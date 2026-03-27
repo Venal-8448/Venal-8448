@@ -1,1 +1,1 @@
-## Hi👋, I'm Shady
+👋 I'm Shady
